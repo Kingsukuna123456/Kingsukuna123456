@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...BUISINESS
 - 📫 How to reach me ...INSAGRAM
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...Im HOT
 
 <!---
 Kingsukuna123456/Kingsukuna123456 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
